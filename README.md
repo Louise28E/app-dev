@@ -11,7 +11,7 @@
 - **Margery Daw:** Similar to shana who is also a Flame Haze but this Flame Haze has a troubled past and a penchant for revenge.
 
 ### **My favorite lines in the series**
-> "I am the Flame Haze Shana. My existence is one that feeds on the lives of the Crimson Denizens."
+> "I am the Flame Haze Shana. My existence is one that feeds on the lives of the Crimson Denizens.",
 > "The world doesn't just disappear when you close your eyes, does it?"
 
 ### **Peak favorite episodes of mine**
